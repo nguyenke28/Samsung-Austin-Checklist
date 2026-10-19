@@ -1,1 +1,0 @@
-# Samsung-Austin-Checklist
